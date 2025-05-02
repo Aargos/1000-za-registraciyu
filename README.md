@@ -916,4 +916,4 @@ RTP: 96.21% | Волатильность: Высокая
 
 ### Казино за регистрацию 1000 рублей вывод сразу без вложений – только честные игры!
 
-**[[https://github.com/Aargos/1000-za-registraciyu](https://github.com/Aargos/1000-za-registraciyu)**	
+**[https://github.com/Aargos/1000-za-registraciyu](https://github.com/Aargos/1000-za-registraciyu)**	
